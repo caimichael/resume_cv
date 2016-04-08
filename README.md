@@ -1,1 +1,1 @@
-To find my resume go to the resume_1 folder and click on the resume1.pdf
+To find my resume go to the resume_1 folder and click on the res1.pdf
